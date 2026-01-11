@@ -13,5 +13,15 @@ feel free to sit with me if i have c+h in my name (or if im stting w/someone who
     </br>
 </br>  —⟪═══════ﺤ
 </p>
-<p align="center"> 
-</br> socially anxious but i adore getting to talk to ppl <33 i dont bite, maybe send me a message? im probably smiling at my screen like an idiot just by someone sitting with me or complimenting me.
+<p align="center">
+</br> socially anxious but i adore getting to talk to ppl <33 i dont bite, maybe send me a message? id love to interact with more people who share my main fandoms!! im probably smiling at my screen like an idiot just by someone sitting with me or complimenting me (maybe even chatting in general) . mostly w2i since i may be offtab or afk!! dms on disc are welcome as well .
+  </br>
+</br> ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄
+</br>
+</br> please note that i may make flirty/freaky jokes, kys jokes, teasing comments, or insulting jokes. i wont really make those jokes unless ive gotten to know you better. i also dont really use tone tags. if i say anything mean pleasee take it as a joke. if you need me to use tonetags, i will!! also pls tell me if you arent comfy w/me making those jokes.
+</br>
+</br>.˚⊹. ࣪𓉸 ࣪ , ⚔⊹ ࣪ ˖˚.
+  </br>
+</br> my strawpage and rentry have way more info. if youre reading this youre really cool and i hope you have a wonderful day/night!! (unless you're my brother, artemis)  
+    
+ <em>[graphic creds](https://www.tumblr.com/hungryearning/757393969412964352/dave-strider-graphic-with-trans-flag?source=share)</em>
