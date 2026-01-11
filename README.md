@@ -24,3 +24,11 @@ feel free to sit with me if i have c+h in my name (or if im stting w/someone who
 </br> my strawpage and rentry have way more info. if youre reading this youre really cool and i hope you have a wonderful day/night!! (unless you're my brother, artemis)  
     
  <em>[graphic creds](https://www.tumblr.com/hungryearning/757393969412964352/dave-strider-graphic-with-trans-flag?source=share)</em>
+ 
+
+
+<p align="center">
+  <a href="https://open.spotify.com/user/your-spotify-id">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=your-spotify-id&theme=compact" alt="spotify-github-profile" />
+  </a>
+</p>
