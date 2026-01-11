@@ -25,10 +25,8 @@ feel free to sit with me if i have c+h in my name (or if im stting w/someone who
     
  <em>[graphic creds](https://www.tumblr.com/hungryearning/757393969412964352/dave-strider-graphic-with-trans-flag?source=share)</em>
  
-
-
 <p align="center">
-  <a href="https://open.spotify.com/user/your-spotify-id">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=your-spotify-id&theme=compact" alt="spotify-github-profile" />
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=tq8wtzuuebqahsctvdi8njdlc&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false&mode=dark">
   </a>
 </p>
