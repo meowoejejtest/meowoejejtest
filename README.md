@@ -25,9 +25,12 @@ stranger things, my little pony<br>
 cookie run kingdom
   <p align="center"> ⋆⊱𖤓⊰⋆
 <p align="center">
-  <strong>Music </strong><br>
-  n/a
-    <p align="center">
+  <strong>music </strong><br>
+katseye, tame impala, olivia rodrigo<br>
+jt music, cg5, various fnaf artists<br>
+theres more buut i cant think of them rn
+  
+<p align="center">
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔<br>
 <p align="center"> $\Huge{\textsf{DNI}}$<br>
 anyone with problematic views (ex; racists, homophobes, ableist, ect...)<br>
@@ -46,7 +49,7 @@ friends c+h only! just a pref :3
 </p>
 <p align="center">
   ⋆⁺₊⋆ ☀︎ ⋆⁺₊⋆<br>
-    $\color{rgb(255,0,0)}{\textsf{im your favoite reference baby}}$ <br>
+    $\color{rgb(255,0,0)}{\textsf{im your favorite reference baby}}$ <br>
 ─── ⋆⋅☆⋅⋆ ───
 <p align="center">
   <img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/0f752739-8d22-45f6-acef-2af1d9afa15e" />
